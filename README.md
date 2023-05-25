@@ -10,6 +10,7 @@ Características principais:
 🚀 Atualizações regulares: Mantenha-se atualizado com as últimas tendências e melhores práticas do mundo em constante evolução do Social Media e Marketing Digital. Este repositório é atualizado regularmente para fornecer informações relevantes e novas estratégias de sucesso.
 
 Benefícios para você:
+
 ✅ Acelere seu crescimento: Aplique as estratégias e táticas comprovadas compartilhadas neste repositório para impulsionar seu crescimento na área de Social Media e Marketing Digital. Obtenha resultados mensuráveis e conquiste o reconhecimento merecido.
 
 📈 Amplie seu conhecimento: Expanda seu conhecimento sobre as mais recentes plataformas de mídia social, ferramentas de automação, análise de dados e técnicas avançadas de marketing digital. Torne-se um profissional versátil e qualificado para enfrentar qualquer desafio.
